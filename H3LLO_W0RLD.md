@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @0xGillies
+- 👀 I’m interested in Ai/Machine Learning, Cybersecurity, and Blockchain Technology.
+- 🌱 I’m currently learning Ai x Machine Learning - Also the fundamentals
+- 📫 How to reach me ... :)
